@@ -1,0 +1,1 @@
+# Farmer-Empowerment-Platform-with-AI-Driven-Insights
